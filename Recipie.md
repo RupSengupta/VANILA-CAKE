@@ -1,0 +1,1 @@
+Boil curd,stir milk, with vanilla essence
